@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @EduardaTuboy
 - 🌱 I’m currently learning Computer Science at USP.
-- 📫 Reach me on Telegram @sou_duds
+- 📫 Reach me on Telegram @sou_duds or Email eduardatuboy@gmail.com
 - 😄 Pronouns: she/her
 
 <!---
